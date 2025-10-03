@@ -1,1 +1,2 @@
-# heavenly-inquisition-sword
+# Heavenly Inquisition Sword
+Après une ultime victoire, Yeon Mooryong devient le maître des neuf cieux. Hélas, le décès de sa seconde épouse assombrit son triomphe. Dévasté, il se retire du monde et son fils Jeokha se retrouve soumis à sa cruelle première femme, Mijoo. À la mort de Mooryong, elle emprisonne Jeokha. Ce qu'elle ignore, c'est qu'en plus d'un terrain d'entraînement, elle lui a fourni une décennie pour acquérir la puissance de son père. La vérité se rapproche pour l'héritier des neuf cieux... fin prêt à revendiquer sa place !
